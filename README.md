@@ -1,1 +1,1 @@
-working ongoing
+chisom on coding thigs way strong
